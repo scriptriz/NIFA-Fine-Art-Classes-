@@ -1,1 +1,1 @@
-# NIFA-Fine-Art-Classes-
+# NIFA-Fine-Art-Classes
